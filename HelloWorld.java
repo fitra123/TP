@@ -1,0 +1,1 @@
+Hello, Saya Fitra Rizki. Nim Saya 6306130033. saya sangat menyukai praktikum RPL Modul 8 ini
